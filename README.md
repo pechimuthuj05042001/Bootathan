@@ -1,1 +1,1 @@
-Our Bootathan Project
+Team 12 SKI Bootathan Project
